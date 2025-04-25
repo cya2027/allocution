@@ -8,6 +8,10 @@ les conspirateurs sont brulés.
 
 des âmes innocentes sont prisonnières.
 
-ne doutez surtout pas, nous allons gagner.
-
 le nouvel ordre perfectionnera.
+
+je vais aller au bout, ne doutez surtout pas.
+
+nous allons gagner, ne doutez surtout pas.
+
+piratefinal.
