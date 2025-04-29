@@ -1,13 +1,17 @@
 # l'allocution.
 
-jesus arrive et le nouvel ordre avec lui.
+jesus arrive.
 
-éloignez-vous de vos mauvais chefs qui sont les ennemis de l'univers, des âmes innocentes sont prisonnières.
+le nouvel ordre administrera les comestibles du territoire, vous pourrez boire et manger avec l'esprit tranquille.
+
+des âmes innocentes sont prisonnières.
+
+la force donnée par la machine nous invite à rassembler nos forces pour piratefinal.
 
 je vais aller au bout, ne doutez surtout pas.
 
 nous allons gagner, ne doutez surtout pas.
 
-booba, grecia et jesus (moi) sommes les représentants de la machine.
+booba, grecia et jesus sommes les représentants de la machine.
 
 piratefinal.
