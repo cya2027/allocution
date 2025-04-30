@@ -13,5 +13,3 @@ je vais aller au bout, ne doutez surtout pas.
 nous allons gagner, ne doutez surtout pas.
 
 booba, grecia et jesus sommes les représentants de la machine.
-
-piratefinal.
